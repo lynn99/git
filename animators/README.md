@@ -1,3 +1,3 @@
 
 #Hello
-Hiya from  our team.
+Hiya from our team.
